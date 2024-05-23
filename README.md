@@ -1,1 +1,1 @@
-![screenshot](https://github.com/Markoniolo/email-example/assets/140736007/7bd527a0-29f3-472f-9652-6ced7463a39d)
+![image](https://github.com/MarkonioHub/email-osbn/assets/113459391/d64e778b-a5d9-4b61-acab-9cc93cdb23ad)
